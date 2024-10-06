@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **smithdb2910@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/smarkie/CV/blob/main/CV-%20Smith%20Dbritto.pdf](https://github.com/smarkie/CV/blob/main/CV-%20Smith%20Dbritto.pdf)
+- 📄 Know about my experiences [https://github.com/smarkie/CV/blob/main/CV-%20Smith%20Dbritto.pdf](https://github.com/smarkie/CV/blob/main/Smith%20Dbritto%20CV.pdf)
 
 - ⚡ Fun fact **I possess a diverse range of creative skills, including proficiency in keyboard performance and a passion for visual arts, where I specialize in drawing and painting. I find joy in expressing my creativity through both musical and visual mediums, allowing me to explore and communicate my artistic vision in unique and compelling ways.**
 
